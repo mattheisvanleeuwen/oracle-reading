@@ -1,0 +1,13 @@
+# CHAPTER 11: **PROSPERING (PEACE)**
+
+The time resembles the exciting beginning of spring, when the cosmic forces are in inspired harmony. There presently exist the ideal conditions for new awakenings, healthy growth, and progressive plans. It is a totally co-operative environmental setting that leads to the flowering and PROSPERING of what is now aroused.
+
+When spring comes to any situation, the superior man uses his awareness of this cosmic signal to cultivate the fertile ground presented. He separates, regulates, controls, and limits the rich beginnings so as to shape the future and organize his life. It is possible now for strong and good ideas to advance the situation while reforming the inferior and degenerating elements of the past.
+
+Your interactions with others can be exceptionally fruitful. If you have avoided social situations in the recent past, you should now feel confident about making contacts. There is an end to animosities as mistrust and factionalism depart and good feelings prevail. The exchange of good influences can create the structure for a PROSPERING social environment.
+
+Many things will become possible as the wisest leaders move with ease into ruling positions. Such men are so magnanimous and progressive that even the most evil elements change for the better. Because of the correct and harmonious nature of the cosmic forces present, it is an excellent time for making useful laws and developing advanced systems of order. Success then comes easily to all the individual members of a PROSPERING government.
+
+Business situations will experience a most direct benefit from this fortunate time. Use the PROSPERING environment to bring organization to your endeavors. The current clarity, like the beginning of spring, lends itself to the initiation of systems that will continue to benefit, even in hard times. Service organizations and people who work with others will make particularly significant gains at this time.
+
+Within the Self, the focus is on inner harmony. The outward aspect of your nature will reflect a certain peace that comes from the PROSPERING of the spirit. There exists now a harmonious accord between your instincts and the cosmic forces. Your most innocent actions will benefit yourself and others. Your personal relationships may remain the same externally, but your attitude will significantly improve. At the same time, your physical well-being will benefit. You will feel a new strength developing as weakening and degenerative elements depart. Generally, this time brings a peace of mind, which alone creates an all-encompassing atmosphere for success and prosperity.

@@ -1,0 +1,11 @@
+# CHAPTER 63: **AFTER THE END**
+
+A state of perfect equilibrium has been reached. Everything seems to be in the best of order. The transition is complete and you are inclined to relax and become complacent. This tendency is what you may expect to experience AFTER THE END or climax of a phase. The situation reflects a familiar historical pattern: After a civilization's exhilarating climb to its glorious peak, decline begins; apathy and irresponsibility appear in everyday affairs, important social bonds weaken, decadence and corruption may be found in areas once thought to be above reproach.
+
+Although the general tendency is moving toward the less than ideal, you can utilize this coming change in circumstance to develop inner-caution and fortification. Such virtues can alert you to situations that must be avoided or dispensed with quickly and firmly. Make it a point to take care of details as they arise. The successful outcome of small efforts is indicated. You cannot avoid the decline that comes AFTER THE END, yet you can learn to survive such times and emerge strengthened in spirit and character.
+
+Above all, do not try to maintain the illusion of the ideal that exists now. You will be deluding only yourself, a deception that is surely dangerous. Such an attitude is not in harmony with the cosmos and will greatly confuse your timing, leaving you open and vulnerable to chaos.
+
+Social and interpersonal relationships may develop problems. These can be endured if precautions are taken. If you know in advance that you will be faced with emotional difficulties you will not be rendered helpless by their impact. Those engaged in business or political affairs should be particularly cautioned. This is not a simple decline, as in hexagram No. 41, DECLINE. It is the time AFTER THE END of what has been a long-term tendency. Careers that are at their apex may undergo a major transition; long-established processes or products could be eclipsed. Fortify yourself with the knowledge that with forethought and preparation even absolute change can be successfully endured.
+
+Exercise caution in your attitude toward the subject of your inquiry so as to ease your way through any coming difficulties. If anything can possibly go wrong, it will. Your vigilance and attention can arm you against misfortune.

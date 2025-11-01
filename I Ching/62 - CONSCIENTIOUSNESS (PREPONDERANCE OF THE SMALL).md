@@ -1,0 +1,13 @@
+# CHAPTER 62: **CONSCIENTIOUSNESS (PREPONDERANCE OF THE SMALL)**
+
+You must now be as conscientious as possible in your dealings with the outside world. Your sense of timing has never been more important to you. Self-control and attention to detail are the character traits that will allow you to accomplish your aims. This is not the time to ascend to the heights of your dreams. Attend to day-today matters and do not overlook anything.
+
+In matters of power and politics, it is possible that you are moving into a far more responsible position than you are really suited for. Pay particular attention to the handling of your affairs. Do not let anything slip by unnoticed, and especially do not be rebellious or outspoken. This is not a time for great endeavors. Instilling in yourself a CONSCIENTIOUSNESS toward duties and responsibilities will bring you good fortune.
+
+Keep a close watch over all financial interactions. Be conservative in your expenditures. If you are looking for extraordinary profits or considering daring investments, you are out of alignment with the cosmos. Do not allow yourself to be blinded by prospects of fantastic gains. Bring a little dignity and CONSCIENTIOUSNESS into your affairs with the commercial world. It is on this path that you will find success.
+
+In your relationships with others you will find your best advantages in following established social guidelines. Any attempts at flamboyance will meet with disaster. Simple, heartfelt emotions will bring you into harmony with your milieu, whereas pretensions or ostentatious behavior will put you into a dangerous position. Social courtesy is the key that will unlock the door to success.
+
+This may not be the most profound moment you have experienced emotionally. You may in fact find your hands full of trivial emotional concerns. Yet you will be rewarded for taking the time to ponder these delicate and sometimes dramatic feelings. Adhere to safe, pre-established roles at this time and avoid excessive displays of emotion while holding an awareness of your true feelings.
+
+Your inner development requires some personal humility. Any manifestation of pride may lead you away from important insights. The forces now at work are not sympathetic to ambitious individual endeavors. The situation might be compared to the mythological flight of Icarus. His attempt to fly with wax wings to the height of the sun met with disfavor and disaster as his wings melted and he fell to earth. You will find good fortune if you stay low and perform your life's work with CONSCIENTIOUSNESS and personal dignity.

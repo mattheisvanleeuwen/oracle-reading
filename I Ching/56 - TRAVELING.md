@@ -1,0 +1,13 @@
+# CHAPTER 56: **TRAVELING**
+
+The planet is covered with communities, each with histories, traditions, CUstoms freedoms, and limitations. They are communities of towns and cities, communities of careers and special interests, religious and philosophical communities, or corn. munities of racial or familial ties. They that bond all run them very intricately deeply through within themselves. time and space,The
+
+and all share common experiences person who is TRAVELING, the tourist of life, will touch them all but remain rooted in none. The time of TRAVELING is primarily a state of mind, yet it leads the traveler into very real spaces. Proper attitudes are of vast importance when moving through both time and space.
+
+You are TRAVELING through the situation at hand. It is unlikely that you will put down roots or fashion your life around it. You are tasting, testing, sightseeing, and collecting information. Whatever the reason for the visit, you will move on. Because of this, long-range and significant aims cannot be accomplished. The traveler should hold to modest goals and behave with good grace and propriety. People on the move are moving targets, therefore caution and reserve should be exercised in your dealings with those you meet on the way.
+
+In no other situation must your principles be so clearly defined and functioning than during the time of TRAVELING. Avoid areas of decadence and follow paths that you know are good. In this way you can steer clear of problems that you may not even recognize as such. There are fewer traditions, seniorities, positions, and rights between you and instant retribution. Therefore be helpful and humble and generally inconspicuous. Then you may experience fascinating insights without the dangerous pitfalls.
+
+In social and personal relationships you cannot and should not make long-term commitments at this time. Be honest about your position and obliging toward the needs of others. Keep passions to a minimum. This is not the best time to eagerly express your opinions or impose your way of doing things. You should instead listen and learn.
+
+This could be a phase in your life when you are making an inner voyage, exploring new ideas, fantasizing new experiences, perhaps a new career or role. It may be that you see mundane day-to-day situations in a strange new light. If this is not a passing mood, it could mark the beginning of an identity crisis. Whatever is up, hold to your integrity — it may become your lighthouse in the sea of the unknown.

@@ -1,0 +1,13 @@
+# CHAPTER 20: **CONTEMPLATING**
+
+The seasons of the year flow into one another with fixed regularity, deviating only within themselves but never in relation to one another. This regular pattern is evident in all phenomena from the movements of the solar system to the migration habits of the animals. All matter in the cosmos is subject to the same cyclic laws, the fates of civilizations and individuals being no exception. Therefore, by CONTEMPLATING the cosmic laws and their effects on both your life and the lives of others, you can gain an insight into the unfolding patterns of events. This perspective is extremely powerful, and the gifted individual can use it to master himself and his environment.
+
+Just as the life of the individual is composed of seasons, the spring of inspiration, the summer of work, the autumn of completion and the winter of rest and contemplation, so too worldly events have their seasons. When attempting to determine the meaning and tendency of a situation at this time, approach it with the predictable plan of the seasons in mind. By CONTEMPLATING the present situation and taking note of what immediately preceded it, you should be able to determine what will follow.
+
+The inherent ability to predict such tendencies is difficult to accept because one rarely sees what one desires. Yet the individual who can courageously and objectively contemplate in this way masters his world. He then becomes a part of the cosmic law, reacting instinctively and appropriately. Those around him are swept along by the force of his presence. Such a person is a true leader, for he leads not with force, but with divine inspiration.
+
+Take this time of CONTEMPLATING to move freely through society. Experience new ideas fully, then offer your advice. Others will now listen eagerly to what you have to say. In matters of business, your ideas will have true impact. Use this opportunity to explore, contemplate, and modify any practices or policies that seem unsuitable. Your example, through honest contemplation, will create trust among your associates.
+
+Your personal relationships will develop smoothly because you can grasp what is needed and respond properly. Through unity and co-operation you can expand these relationships into new areas of personal and social importance.
+
+Keep in mind that at this time you are being contemplated by others as well. When you are in touch with the forces and laws of the cosmos, your position will become as prominent and obvious as your influence. The higher you rise in an attempt to see and contemplate, the more visible you become.

@@ -1,0 +1,11 @@
+# CHAPTER 10: **CONDUCT**
+
+This can be a brilliant and inspiring time. It can also be a time of danger. Everything depends upon the way that you CONDUCT yourself. The best possibility for progress and success comes through your sense of dignity and composure. Disorder and chaos cannot touch you if you behave with propriety and good manners.
+
+Pay special attention to your CONDUCT in social affairs. When in doubt, maintain your dignity. You may suddenly come face to face with the necessity of becoming truly discriminating in your choice of acquaintances. The process of social readjustment is in the air. Some are climbing. Some are falling. It's a natural occurrence. No one will be hurt. These cycles of balance and discrimination, based upon the inner worth of the individuals involved, will bring order and progress to society.
+
+When you are dealing with matters of business, you must CONDUCT yourself with great care and dignity. Persons below you may make a bold approach or perhaps an unexpected advance. Base your reactions upon the inner worth of these people, and your authority will not be challenged. In this way you can avoid incompetence caused by prejudice or eccentric whims on your part. If you, yourself, are embarking on ambitious endeavors you may find success in your pursuits. Stick to traditional behavior patterns, however, in spite of your daring.
+
+The time is truly difficult in personal relationships. Consider now the goals and desires of those close to you. If there are misunderstandings or confusion, maintain your composure. Good fortune comes through conducting yourself with thoughtfulness and courtesy. If you or your loved ones are contemplating a wild emotional move, whatever the circumstances, it is now ill advised. By bringing a little dignity into your relationships you can create an atmosphere for emotional growth and progress.
+
+In terms of general attitude, maintain your composure at all costs. The way that you CONDUCT yourself now will determine the outcome of any external situation. You can avoid poor health brought about by stress if you adopt a good-natured outlook. Above all, use this time to develop a sense of your own Self worth. Take note of your outstanding character traits and continue to cultivate your inner growth in the direction of these worthier virtues.

@@ -1,0 +1,13 @@
+# CHAPTER 28:  **CRITICAL MASS (PREPONDERANCE OF THE GREAT)**
+
+In an atom, when CRITICAL MASS is reached, it is a time when several heavy particles are occupying the same space, thereby creating extraordinary events and catastrophic chain reactions. In much the same way, the current situation is becoming weighted with a great many considerations. There are numerous decisions pending, the air is full of ideas with all their ensuing multifarious possibilities, and the ponderous affairs of the people around you are pushing into the foreground. All of it is important, serious, and meaningful, and all of it is coming to a head right now.
+
+Your environment is rapidly becoming the meeting ground for many of the major circumstances affecting you. These things will take up a great deal of your time, space and energy. More and more of your attention will be demanded by these very real imperatives. There is a lot going on, the situation is excessive and may reach CRITICAL MASS soon.
+
+Look for an avenue of escape. Prepare to make decisions about your next move. Carefully evaluate all of the things affecting you. You will need your wits about you to successfully make this transition. Have a goal or destination in mind.
+
+In social or business affairs make a rapid assessment of your situation. Concern yourself with the care and development of your assets. These are the things that you will carry away with you, and they should become the foundations of your character. Be ready to make a quick transition into an entirely new mode of life.
+
+When experiencing CRITICAL MASS in personal relationships and inner development you must realize that this may be a time of crisis. Naturally, all that is coming to a head cannot be put off, but you should marshal your forces and penetrate the meaning of what is happening. If necessary, retreat into your innermost Self and attempt to comprehend your position. When several significant things come upon you at once, you must be prepared to take a stand and rely on the resilience of your character to see you through. If it should happen that you must face this alone and, in fact, renounce your entire milieu, you should do so confidently and courageously. Times like these bring to light the true fiber of the Self. A person who is prepared for momentous times will survive them unscathed and emerge even stronger.
+
+ Above all, when CRITICAL MASS is imminent, action must be taken. Tthis is a carefully considered escape or a resolute determination to dispense with what is to come, success surrounds those who remain strong and certain within.

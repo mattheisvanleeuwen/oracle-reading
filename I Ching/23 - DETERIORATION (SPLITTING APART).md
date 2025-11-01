@@ -1,0 +1,13 @@
+# CHAPTER 23: **DETERIORATION (SPLITTING APART)**
+
+There is an impressive display of DETERIORATION in nearly every aspect of the current affair. These lesser elements, and those who represent them, have gained complete control over the situation. DETERIORATION will continue to spread until it falls out of fashion, and there is nothing a person of integrity can do but wait. Eventually there will come a change for the better.
+
+In political affairs and matters of power the time may be thought of as a rapid DETERIORA TION or overthrow. There exists now an abundance of incompetent persons in positions of authority to help bring this about. As shown in the extraordinarily long period of recorded history in ancient China, where the I Ching was often used as a political manual, such declines were expected and accepted. The original text of the hexagram states: "The superior man respectfully appreciates the cycles of increase and decrease, of greatness and decadence, as revealed by the heavenly bodies." The text continues to warn against forging ahead at this time. Your best course is to wait out the difficult times and protect yourself by generously providing for those close to you.
+
+The time should be contemplated with great care in all financial and business matters. If possible, do nothing to progress your own interests. You will simply be advancing into adversity and possibly disaster. The situation is in the hands of persons lacking in vision. Wait until things change and concern yourself, meanwhile, with insuring your own position. Reach out benevolently and consolidate your relationships with those below you. This will provide for you a secure foundation while you wait.
+
+This is a difficult time socially, for fulfilling communications with others are in a state of DETERIORATION as well. In social interactions, a low profile will help you avoid misunderstandings. If you are an artist or involved in influencing your milieu, you could not pick a more unfortunate time to seek an audience. If you have the opportunity to overlook a social event, do so.
+
+If there is a breach in your personal relationships, it cannot be easily bridged now. Remain calm and quiet for the present, and if you can, be generous and supportive of those dear to you. Then, when things improve, as they naturally will, you will find that you have preserved and strengthened your relationships.
+
+At this time your health and inner development may be in a less than ideal state due to inferior elements in your environment. Yet external ploys will not put an end to the natural cycle of DETERIORATION. Time will. Nurture your mind and body reasonably and sensibly now. Look for wisdom in your acceptance of the times.

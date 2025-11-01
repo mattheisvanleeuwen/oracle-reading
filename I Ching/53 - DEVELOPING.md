@@ -1,0 +1,13 @@
+# CHAPTER 53: **DEVELOPING**
+
+The time points to a careful and natural unfolding of events. Rapid revolutionary growth is inappropriate now, and instead, a deliberate and slow cultivation of the situation is the path to success and good fortune. Only by gradually DEVELOPING your relationship with the area of your concern can you make the kind of progress you desire. Calmness and adaptability along with good-natured persistence will gee you through.
+
+Although the process seems slow and at times unchallenging, the affairs of power and politics require gradual measures. A step-by-step process in DEVELOpING your position is the key to success now. In forming unions or affiliations, move slowly. Do not attempt to use agitating devices in order to gain a following. This is the time for elections rather than revolutions, for promotions and not usurpations. Leaders who hold to righteousness in their duties can now gain a prominent position. In this way an ordered and productive enviroment is created.
+
+Your social world now offers little in the way of the avant-garde. Established social customs and traditional values are the keys to arousing the sentiments of others. Grand attempts to achieve a striking effect would be unwise and have little lasting value. Your time will be best spent DEVELOPING a position of meaningful influence through socially acceptable and co-operative efforts. In all interactions, allow things to develop naturally.
+
+This slow DEVELOPING of affairs is important to keep in mind in business matters. This is not a time of quick profits or rapid advancements. Yet success does come if you hold a firm inner vision of your plans while adapting to established business policy.
+
+When attempting to sort through the many potentials, possibilities, and problems that arise in your more personal relationships, you can find comfortable guidelines in observing established social mores. The time amplifies the idea of the traditional and the gradual. A slowly DEVELOPING engagement that leads to marriage was the example used in the original Chinese text of this hexagram. Refrain from hasty or passionate action and lean toward the romantic cultivation of love.
+
+Even though you may desire to make great changes in your life, your path lies in the traditional DEVELOPING of events. Make an attempt to see yourself against the backdrop of enduring social values. Once you understand yourself and your duties in this larger context, you can make meaningful progress. The inner calm and sense of duty and morality that come with this perspective lend weight to the character and set a good example for others.

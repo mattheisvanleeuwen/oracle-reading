@@ -1,0 +1,13 @@
+# CHAPTER 26: **POTENTIAL ENERGY (THE TAMING POWER OF THE GREAT)**
+
+Because you are in possession of a great deal of stored or POTENTIAL ENERGY, you may now undertake ambitious and far reaching endeavors. The timing of such efforts is of vast importance. The ability to control, direct, restrain, or store your powers will bring you very good fortune. Also, the continual re-evaluation of the correctness or worth of your plan is now a concern of major significance.
+
+If you are considering issues that pertain to political matters, you should choose the path of public mindedness rather than personal advancement. Place your POTEN TIA L ENERGY at the disposal of a worthy leader. You can work toward the fulfillment of a cause or social ideology with assured success. The time lends itself to the attainment of great achievements. When in doubt, give thought to the historical doctrines upon which current political systems are based.
+
+You will find that the affairs of business lean toward the interests of public service. Any endeavors that provide goods and services that directly benefit others will meet with great success. You have at your disposal the accumulated knowledge or resources to launch a significant commercial enterprise. Be certain, however, that your objectives are worthwhile in the overall scheme of things. This is too great a time to waste on frivolous ventures.
+
+Bear with even difficult social relationships and attempt to cultivate useful connections. This time of POTENTIAL ENERGY can lend astonishing dimensions to your circle of influence. You can skillfully organize others into a useful network of social exchange. Artists and those involved in creative communications will benefit greatly by expanding their worlds. The emphasis now should be on pragmatic and useful communications.
+
+You possess a storehouse of potential psychological energy. There is no reason that it should not be used in a positive exchange. Personal relationships could blossom overnight. For greatest success, hold to traditional values. View all feelings in the light of what has come before and what is expected by tradition.
+
+Pay particular attention to the continuing development of your character. The totality of what you have experienced has organized itself into an illuminated perspective of great clarity. This may be a real breakthrough in the maturing process. You have the POTENTIAL ENERGY for an enlightened insight that could change your life.

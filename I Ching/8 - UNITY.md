@@ -1,0 +1,13 @@
+# CHAPTER 8: **UNITY**
+
+As a part of civilization, man is also a product of civilization. (HOLDING He shares TOGETHER)with the other members certain intrinsic experiences peculiar to his community. This creates in turn a bond of language, order, and tradition, which are the foundations for the progress and evolution of both the community and the individual. His relationships to his immediate society may be many and varied. He may feel rebellious or conservative, apathetic or highly conscious, he may be lauded or incarcerated. Whatever his circumstances, he is inexorably a member of the social order.
+
+You are surrounded at this time by an awareness of your society. Whatever your inquiry, you must first address yourself to this issue. It is of great importance that the need for creating UNITY is recognized. The individual human spirit is nourished by a sense of connectedness to the whole of human awareness. This perspective will enhance your sense of direction. You will be able to glimpse yourself as a part of a whole, which will both amplify your individuality and annihilate it. Do not fear this, for it will not diminish your self-awareness but rather spotlight it against a more profound background.
+
+The Chinese text urges that on some level UNITY takes place when opportunities first arise. These are important experiences in the development of character. If you continue to ignore these opportunities you are more and more excluded from
+
+your community and rendered ineffectual in terms of influence: Not only will you have little to say, but also very few will be listening. Whether you interpret this as voting in an upcoming election, joining a public-minded organization, attending or supporting a cultural event, or simply adopting a more responsible attitude about your neighborhood, now is the time to act. In interpersonal affairs, look both within the relationship for UNITY and beyond it for its meaning within society. There is a time for exclusivity and a time for social UNITY and productivity.
+
+This hexagram has another equally important aspect: It may be that an opportunity has presented itself for you to be the leader of UNITY, to gather the members of society together, to influence them, to advance them. Keep in mind that this position requires great responsibility, virtue, and a true sense of purpose. If you are not up to such a role and yet endeavor to undertake it, you will create only chaos and confusion.
+
+So important does the I Ching regard this role that it suggests that one who feels such a calling consult the oracle once again to determine the state of his character, the integrity of his motives, and his harmony with the cosmos.

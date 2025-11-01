@@ -1,0 +1,13 @@
+# CHAPTER 29: **DANGER**
+
+The situation is one of real DANGER, caused by and manifested in the affairs of man. This DANGER is not inspired by overwhelming tendencies within the cosmos, or by conflicts in your innermost attitudes. The real DANGER that confronts you is brought about by your immediate environment. It will take skill to overcome the difficulties, but managed properly, this time of challenge can bring out the very best in you. The Chinese text points out that if you can act with confidence and virtue whatever you do results in success.
+
+Do not avoid confrontations in any difficult or threatening situations; you must now meet and overcome them through correct behavior. Maintain a continued resolve. Hold to your ethics and principles and do not for a moment consider compromising what you believe to be right. Acting with integrity and confidence is the key to surmounting the DANGER.
+
+In business or political affairs, stick to approved policy. When making judgments regarding matters of leadership, neither bargain with your principles nor attempt to avoid the issue, for such actions would render meaningless all that has been achieved thus far. In social interactions, remain true to your nature. If possible, convince others of the soundness of your ideas by demonstrating the good effects of your actions. If they will not support you, you do not need them. Keep moving. Do not dally in the DANGER. In personal relationships, do not allow passions to lead you into peril. If the difficulties cannot be resolved without sacrificing your principles, the relationship may be irresolute.
+
+The time of DANGER can be especially good for inner development. By holding to fixed and virtuous ethics, by maintaining your inner vision and ideals, all things will fall into a steady, tangible perspective. You will know your relationships to your environment, and in this way you can accomplish your aims. Although subjective, this perspective is now in accord with the problems facing you.
+
+Additionally, by persevering in high-minded conduct, you become a living example to your family and your fellow man. Through the consistency of your actions you guide and inspire others in the handling of their own affairs. This in turn will create order and dispel DANGER within your milieu. Thus you are protected.
+
+Frequent encounters with DANGER are a part of life. Beyond making you inwardly strong, familiarity with DANGER, like the near brush of death, can instill in you a profound awareness of the life force and the mysterious nature of the cosmos. Such heightened awareness can bring new meaning, determination, and richness into your life.

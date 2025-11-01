@@ -1,0 +1,13 @@
+# CHAPTER 5: **CALCULATED WAITING**
+
+A period of CALCULATED WAITING must pass before the cosmos can address itself to your needs. Many areas are undergoing significant change. Shifting powers are generating new ideas, animosities are appearing, alliances are forming, systems are breaking down, and collective causes are being organized. It is the eternal flux of change as manifested in human affairs.
+
+That which you desire is caught in this change. In essence, it is a dangerous time, since the elements involved are not directly under your control. You may be facing some kind of threat or awaiting the outcome of a decision that could greatly affect you. If you worry about it you will grow inwardly confused and succumb to chaos and fear. You will waste valuable energy through agitation. When the time does come to act, your judgment may be impaired.
+
+In order to attain your aim, you must wait to act until circumstances are in your favor. Inwardly bide your time and nourish and strengthen yourself for the future. Through careful observation attempt to see things without illusions or fears. Face the facts. If you are aware of your shortcomings and advantages, you will know what to do when the time comes. Ultimately you will meet with success.
+
+In the meantime, the way that you conduct yourself outwardly is of great importance in the outcome of the situation. The time of CALCULATED WAITING will put your confidence to a test. It is now that you must make a show of confidence. Do not express your doubts about the past or the future. Indulge totally in the present. Keep your thoughts and words on a positive note and maintain an assured and cheerful attitude. In this way you will win the confidence of others and fortify your own certainty.
+
+An external approach to inner development can be compared to yoga practices. By adopting certain physical postures of balance and discipline, a resonant chord is struck in the spirit. Such an alignment between the internal and the external creates a more sensitive consciousness, a certain enlightened awareness, and an overall healthy atmosphere.
+
+In groups or relationships, all parties are involved in a situation that requires CALCULATED and good-natured WAITING. Those involved should realize that the situation is out of any one person's hands. Destiny is at work here. Any action would be a foolish overreaction, so nourish one another with cheerfulness and reassurance instead.

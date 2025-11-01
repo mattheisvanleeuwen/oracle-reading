@@ -1,0 +1,13 @@
+# CHAPTER 25: **INNOCENCE**
+
+The time demands an alignment with the flow of the cosmos. This adjustment must be made before further action is taken, otherwise you will begin to make mistakes. When actions that seem perfectly reasonable and cleverly planned are executed, they will end in difficulty and confusion. In order to harmonize your actions with the cosmos, it will be necessary to adopt an attitude of INNOCENCE. Examine your motives. They will be the cause of your problems. This is a time for acting without conscious purpose, without ulterior motive and with complete rectitude. Do not aspire to be rewarded for your actions, nor direct them cunningly toward personal advancement. Act innocently and react spontaneously.
+
+Your instincts should be developed and modified in the direction of natural goodness. Your first inclinations should be to preserve your well-being, clear the way for your fellow man, and take note of worthwhile information. Without integrity and morality in your character you could not trust your instincts, for they might lead you into dangerous situations.
+
+The path to your goal is now an indirect path. You must rely on your principles and inner virtue rather than clever strategies. This will not lead you away from success — on the contrary, INNOCENCE with spontaneity will bring creativity to many areas of your life. You will appear to your milieu inspired and brilliant. This will give you great influence. If you are a teacher, leader, or head of a family, use the insights and inspirations that will occur during a time of INNOCENCE to fulfill the needs of those who rely upon you. Do this without thought of compensation or hope  of a possible gain in stature.
+
+It is important to keep in mind that laws of the cosmos are divine and do not necessarily follow the desires of man. Therefore, when acting in INNOCENCE, you will also experience the unexpected, the exceptional, the unpredictable. Be prepared for a surprising turn of events. What occurs will stimulate new ideas, even if at first this seems unnerving or full of complications.
+
+A state of INNOCENCE could be a refreshing interlude in your personal relationships. Spontaneity can bring great pleasure as well as reveal true feelings and motives, whereas intrigue at this time would only yield perplexity and possibly disaster. Again, INNOCENCE may lead to surprising new areas of unexplored mutual interest.
+
+For those who are puzzled or at a standstill in regard to a particular issue, a spontaneous method of action could lead to a highly creative and original solution. Act without guile and do not attack the problem directly.

@@ -1,0 +1,11 @@
+# CHAPTER 57: **PENETRATING INFLUENCE (THE GENTLE)**
+
+Chinese art often depicts the effects of the invisible wind as it influences the landscape. Mountains are shown eroded and sculpted into fascinating forms, trees bend and twist into exotic shapes, clouds roll dramatically across the sky, bringing life-giving rain. In contemplating the wind, the Chinese mind is inspired by the profound effect of a steady, PENETRATING INFLUENCE, and how this effect might manifest itself in human affairs.
+
+You are faced with a situation that can be influenced only by gradual efforts in a consistent direction. Gentleness is the key here. Violence and radical movement would only alarm and repel. To influence effectively, you must maintain clearly defined goals over a long period of time. Your efforts should be as inconspicuous as possible. Try to imagine and emulate the gentle, unceasing wind. Success will come in a gradual way, bringing increasing clarity of purpose.
+
+To influence a group, you must thoroughly comprehend the spirit of the community. If the group has a strong leader, hero, or ideal, then align yourself with this prime motivator. Once you begin to act and speak with the sentiments of the people in mind, you will gradually influence them. This type of PENETRATING INFLUENCE is not rousing and takes much time, but it makes a lasting and profound impression.
+
+Similarly, only with gradual influence can you further develop your personal relationships. Sweeping gestures and emphatic declarations will only create distance. The time requires patience, a long-term commitment, and a vision of what you ultimately wish to accomplish. The improvement of your emotional and physical health will now come with gradual refinement.
+
+The power of the mind through concentration is enhanced during the time of PENETRATING INFLUENCE. Great men accomplish significant deeds through an enduring effort in a consistent direction. When you wish to achieve an important aim, direct your thoughts along a steady, uninterrupted course. Know at all times your goal. In this way events that capture your attention will be relevant to where you are going, and all subsequent actions will lead you ever closer to your goal.

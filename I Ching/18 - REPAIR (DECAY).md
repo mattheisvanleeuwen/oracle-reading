@@ -1,0 +1,11 @@
+# CHAPTER 18: **REPAIR (DECAY)** 
+
+The object of your inquiry is in a state of disrepair. This may be an inherited difficulty or it may have come about because you have been unaware of a need to constantly monitor, analyze, and attend to the details of the situation. You cannot ignore, or discount as unimportant, even the smallest detail of any situation over which you wish to maintain control. All things have built-in weak points, places that decay and eventually collapse. This is especially visible in human affairs.
+
+Stop now and think about it. Your problems may seem to be overwhelming; things may appear to be out of hand. Yet the hexagram REPAIR bodes great success. Through work you have the opportunity to totally eliminate the past indifference that has created the present uncomfortable situation. Work hard. You can see the problems clearly. The timing is excellent for making amends. Do not be afraid to take assertive action. Outside forces do not influence the situation. Your own past attitude has allowed the damage to occur, making you uniquely equipped to REPAIR it.
+
+Before taking action, it is important to consider the winding path that has led to this state of decay. Only through intelligent deliberation can you be certain that the action you take is correct. Think it over carefully. The original Chinese text recommends three days of consideration before making a move, but you will know when to act by the nature of what you propose to do. The correct actions now are constructive rather than combative and lay the foundation for continued growth toward the good. This is not a time for radical or reactionary reforms. Look, instead, for an avenue of constructive action, an area of positive growth. Be energetic once you've found your path of action. Don't be lulled into inertia by the magnitude of the task. The situation will develop new energy and inspiration once the problems are removed. Also remember that you must keep things in line once the change has been made. Don't slip back into an attitude of complacency. Your problems could easily recur.
+
+ 
+
+#

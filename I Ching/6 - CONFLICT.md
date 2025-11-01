@@ -1,0 +1,15 @@
+# CHAPTER 6: **CONFLICT**
+
+In your heart you are certain that your proposed path is correct. You feel yourself to be in the right, and therefore you proceed with complete confidence. In fact, you are acting in accordance with your own nature and the dictates of the time. This path you have chosen, however, will lead you into a state of CONFLICT. Obstacles and opposition will rise up in front of you, and there is no way to circumvent them. Whether these are inner obstacles or external oppositions, they represent a formidable countermovement, since, from their point of view, they too are correct. This CONFLICT will cause you to stop and reconsider your original premise.
+
+It would have been wise to cautiously weigh all of the possible difficulties and oppositions at the beginning of your endeavors. Such careful considerations are the only way to avoid debilitating CONFLICT which can bring your efforts to a standstill. As it is, you cannot engage in confrontation with your adversaries, for this would lead to misfortune. All such aggressive or cunning strategies will come to evil.
+
+In questions of power or politics, it would be in your best interests to place the CONFLICT before an impartial authority who can make un unprejudiced decision. In this way you can bring discord to a halt before it becomes injurious. If you have planned an ambitious enterprise or have a goal of significance in mind, you would be advised to begin again at another time.
+
+Business matters cannot be brought to fruition at this time. The competition is too great, and even carefully planned objectives will end in CONFLICT. You may meet with unfavorable reactions to ideas or products you thought to be totally acceptable. It would be best to hold back major changes or innovations until the time is more auspicious.
+
+At a time when social unity is most important it is significantly lacking. There are misunderstandings brought about by basic philosophical differences and they cannot be overcome with forceful measures. Avoid controversial topics unless there is present a wise mediator who is trusted by all concerned. Social events of importance cannot be staged with any real success. If you can avoid them, do so.
+
+Try to stay away from open confrontations in your personal relationships. It would be better to yield to those close to you rather than involve yourself in disagreements for which there is no ultimate resolution. A third person or disinterested party might now bring some insight to a CONFLICT of emotional interests. Above all, don't make any major decisions or demands based upon your own point of view. Although you may feel that your position is above reproach, you are dealing with only one side of the issue. Hold back and re-examine your original feelings.
+
+In terms of inner development, your natural growth and patterns of interest have met with undeniable opposition. The time is one of spiritual maturing. Do not force the issue. A cautious yielding now leads to good fortune.

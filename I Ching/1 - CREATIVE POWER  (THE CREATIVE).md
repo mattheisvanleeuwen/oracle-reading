@@ -1,0 +1,11 @@
+# CHAPTER 1: **CREATIVE POWER  (THE CREATIVE)** 
+
+CREATIVE POWER is nothing less than the detonating device in the evolutionary bomb. The time is exceptional in terms of inspiration, energy, and will. It could be compared to the generative power of creation when the sperm enters and quickens the egg. The force of this time is the primal directive that propels us into our destinies regardless of what our reasoning or recalcitrant minds may think.
+
+All activities will now center around your imperatives. You can now catapult yourself and others into great and significant activity. Direct this new strength wisely. Choose endeavors that will be useful and inspiring to all of humanity. Righteous and worthwhile goals will meet with sublime success.
+
+In political or business affairs you will now be seen as the leader or governing force. Others will look to you for guidance and counsel. You have the opportunity to bring your personal desires into accord with the needs of society, thereby creating order and peace. You can create functions and laws and organize others with ease, and, in doing so, cause them to prosper and find happiness. With your example those around you will develop their higher senses. This is therefore a time of unparalleled significance.
+
+Cast away from yourself all random interferences and unorganized trivia. You must use this time wisely and not squander the extraordinary CREATIVE POWER available to you on undirected activities. Everything you do will now lead you to still greater goals, so you should carefully conserve and direct your resources. Skillful timing is a great factor in this. Alert yourself to the intricate signals of the time by being constantly poised for action while maintaining strict discrimination and integrity. Know where your actions will lead. Know when not to act. Such masterful and sagacious awareness is truly the mark of a superior person.
+
+Personal relationships will center around you. Your family or mate will look to you for leadership. Confidently take the initiative. At the same time, within the Self, all growth is accelerated. Develop inner strength by adhering to noble principles and far-reaching objectives. Ignore unimportant or irrelevant considerations. Success is imminent and will not be held off.

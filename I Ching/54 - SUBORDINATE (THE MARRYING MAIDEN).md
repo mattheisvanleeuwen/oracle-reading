@@ -1,0 +1,13 @@
+# CHAPTER 54: **SUBORDINATE (THE MARRYING MAIDEN)**
+
+The balance of forces at work at this time are wholly inequitable, You reasons of circumstance, be assertive or while make the yourself situation are completelyindispen-can get
+
+dependent upon a situation for along quite well without you. If you try to sable, you will meet with misfortune. It has never been easier for you to make mistakes. since everything you do is inappropriate. You are not in control of a single thing, with the exception of your ability to perceive your difficulties and react accordingly. It would be in your best interests, now, to behave as a SUBORDINATE. with propriety, passivity, and constant caution.
+
+Your individuality is totally eclipsed by social considerations. If you are heard, no one pays attention. If you assert yourself, you are thought bold and presumptuous. No one is interested in your views. At best, what social contact you have is circumstantial; at worst, you are being used. Regardless, you can influence no one without being misunderstood.
+
+If you are beginning a new job, watch carefully for early mistakes and correct them quickly and quietly. Act as a SUBORDINA TEand you can avoid error. Do not attempt to be creative or to excel in your work or to supplant a superior. Any attempts to get ahead will end in disaster. Do only what you were hired to do; do it well and nothing more. In political matters and questions of power, it is better, now, to withdraw into the background than to give evidence of your impotence. Use your energies instead to strengthen your inner vision.
+
+In the original Chinese text, this hexagram was called the Marrying Maiden and referred metaphorically to the difficulties of a nonprivileged concubine who remained SUBORDINATE to the recognized marriage. In your personal relationships you are not being perceived as who you truly are. You are thought of in terms of your role and how you manage to fulfill it. Your subordination to this role is an unrewarding moment in your emotional life, but it will pass. Don't force this issue with your mate, for the ensuing recriminations may be disastrous. Remain passive for now and hold to the enduring aspects of the relationship to see you through.
+
+  The time when you are forced to subordinate yourself is best spent in thought of the future. Develop and cling to a long-range ideal. This will take you beyond this difficult time, with few mistakes and increasing clarity of purpose.

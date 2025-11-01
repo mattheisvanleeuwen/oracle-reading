@@ -1,0 +1,13 @@
+# CHAPTER 19: **PROMOTION** (APPROACH)
+
+Ote time is one of immediate PROMOTION, The Chinese correlated this hexagram to the end of winter and the very beginning of spring. Like the sprout of a new plant shooting forth its first burst of creative activity, you can now make your first positive advancements toward the attainment of your goal.
+
+If your concerns are directed toward matters of politics or power, this will be a most rewarding moment. A PROMOTION of your abilities or talents will now put you in the spotlight of events. At the same time, you will find yourself in a position of authority. You will be able to skillfully influence and support others. It would be wise to address yourself to the concerns of those around you, thus consolidating your position in society. This tremendously positive time will not last forever, so you must use it to its best advantage. The original text of the hexagram states: "When the eighth month comes there will be misfortune." This refers to the decline of autumn, which lies unavoidably ahead. Therefore you should make the most of this spring of power and optimism to prepare yourself for the natural cycle of decline.
+
+There is a PROMOTION on the horizon in the affairs of business. If you have been waiting for an opportune moment to put forth a new idea or to maneuver yourself into a better position, the time has come. Those in authority have never been more receptive toward you. Great progress is a real possibility, and financial affairs are in your control as well. Use these advantages to make gains now and prepare for the future.
+
+In your social world you have "arrived." Your charisma is powerful and you are able to influence and teach others to improve their own outlooks. This PROMOTION in social prominence should be used to enhance and invigorate your entire environment, thus preparing a secure foundation for any cultural regressions.
+
+Relationships have the potential to blossom and you may find yourself in the role of the assertive partner. Your input can create the atmosphere for the strengthening of personal bonds. The time is most inspiring in matters of the heart because things are at their very beginning of development. Be tolerant and caring and you can build a structure that will weather those stormier emotional encounters that are a part of any relationship.
+
+There is now a dynamic emphasis on inner growth. You will gain great clarity about your identity and your place in the larger scheme of things. Physical and spiritual strength will be enhanced as you sense a PROMOTION into new worlds of self-realization. Try to develop a permanent perspective of the confidence you are now experiencing to guide you through upcoming confusion or depression.
