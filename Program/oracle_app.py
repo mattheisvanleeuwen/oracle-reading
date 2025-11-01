@@ -4,7 +4,7 @@ A modern, mystical interface for generating I Ching readings based on runes.
 """
 
 import streamlit as st
-from datetime import datetime
+from datetime import datetime, timedelta
 from pathlib import Path
 import re
 import os
@@ -198,6 +198,12 @@ if 'language' not in st.session_state:
 if 'draw_mode' not in st.session_state:
     st.session_state['draw_mode'] = None  # None = not chosen yet, 'manual' or 'digital'
 
+# Initialize rate limiting
+if 'rate_limit_count' not in st.session_state:
+    st.session_state['rate_limit_count'] = 0
+if 'rate_limit_time' not in st.session_state:
+    st.session_state['rate_limit_time'] = datetime.now()
+
 
 # ============================================================================
 # HEADER WITH LANGUAGE TOGGLE
@@ -377,6 +383,25 @@ with col2:
 # READING GENERATION
 # ============================================================================
 
+# Rate limiting configuration
+RATE_LIMIT_COUNT = 5  # Max 5 readings
+RATE_LIMIT_WINDOW = 3600  # Per hour (in seconds)
+
+# Check if rate limit exceeded (only if button was clicked)
+if generate_button:
+    # Check if rate limit exceeded
+    time_since_first = (datetime.now() - st.session_state['rate_limit_time']).total_seconds()
+    
+    if time_since_first > RATE_LIMIT_WINDOW:
+        # Reset if hour has passed
+        st.session_state['rate_limit_count'] = 0
+        st.session_state['rate_limit_time'] = datetime.now()
+    
+    if st.session_state['rate_limit_count'] >= RATE_LIMIT_COUNT:
+        remaining_time = int((RATE_LIMIT_WINDOW - time_since_first) / 60)
+        st.error(f"⏱️ Rate limit reached. Please wait {remaining_time} minutes before generating another reading. (Limit: {RATE_LIMIT_COUNT} per hour)")
+        generate_button = False
+
 if generate_button:
     if not user_name.strip():
         st.warning(get_text(lang, 'error_name'))
@@ -408,6 +433,9 @@ if generate_button:
         # Store in session state
         st.session_state['reading_data'] = reading_data
         st.session_state['generated'] = True
+        
+        # Increment rate limit counter
+        st.session_state['rate_limit_count'] += 1
         
         # Reset draw mode for next reading
         st.session_state['draw_mode'] = None
