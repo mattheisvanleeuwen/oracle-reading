@@ -1,0 +1,93 @@
+### **\#\# The Core System: Two-Rune Generation (24 Runes $\\to$ 64 Hexagrams)**
+
+This system uses two rune draws to generate a single, complete hexagram. The logic is as follows:
+
+1. **Rune 1 (The Root):** You draw the first rune. This rune determines the **Lower Trigram** (the "inner dimension" or "foundation" of the situation). The specific rune provides the **"flavor"** for that trigram.  
+2. **Rune 2 (The Context):** You draw the second rune (returning the first to the bag). This rune determines the **Upper Trigram** (the "outer dimension" or "strategy"). This rune provides the **"flavor"** for that trigram.  
+3. **The Resulting Hexagram (The Landscape):** The two trigrams combine to form one of the 64 hexagrams.2 This hexagram is the "landscape," or the objective answer, which is then interpreted through the *specific lens of the two runes drawn*.
+
+#### **🔑 The Mechanism: The Rune Triad to Trigram Map**
+
+The engine of this system is the mapping of 24 runes to 8 trigrams. Since $24 \\div 8 \= 3$, we grouped the runes into 8 "Triads." This grouping is not arbitrary; it is based on the **Aett Stacks** (a modern esoteric theory), where runes in the same *position* (1-8) across the 3 Aetts share a core archetypal meaning.
+
+Each of the 8 Trigrams is mapped to one of these 8 positional stacks:
+
+| Trigram | Meaning | Rune Triad (by Aett Position) | Shared Thematic Resonance |
+| :---- | :---- | :---- | :---- |
+| $\\☳$ **Zhèn (Thunder)** | The Arousing, Shock, Action | **1\.** $\\ᚠ$ (Fehu), $\\ᚺ$ (Hagalaz), $\\ᛏ$ (Tiwaz) | **The Principle / Catalyst:** Primal energy (Fehu), fated crisis (Hagalaz), and divine justice (Tiwaz). |
+| $\\☷$ **Kūn (Earth)** | The Receptive, Matter, Mother | **2\.** $\\ᚢ$ (Uruz), $\\ᚾ$ (Nauthiz), $\\ᛒ$ (Berkano) | **The Substance / Form:** Primal potential (Uruz), fated constraint (Nauthiz), and the nurturing womb (Berkano). |
+| $\\S$ **Gèn (Mountain)** | Keeping Still, Boundary | **3\.** $\\ᚦ$ (Thurisaz), $\\ᛁ$ (Isa), $\\ᛖ$ (Ehwaz) | **The Threshold / Stasis:** The defensive gate (Thurisaz), total stillness (Isa), and potential for movement (Ehwaz). |
+| $\\☰$ **Qián (Heaven)** | The Creative, Spirit, Logos | **4\.** $\\ᚫ$ (Ansuz), $\\ᛃ$ (Jera), $\\ᛗ$ (Mannaz) | **The Order / Consciousness:** Divine word (Ansuz), cosmic law/cycle (Jera), and human consciousness (Mannaz). |
+| $\\S$ **Kǎn (Water)** | The Abysmal, Danger, Deep | **5\.** $\\ᚱ$ (Raidho), $\\ᛇ$ (Eihwaz), $\\ᛚ$ (Laguz) | **The Journey / Process:** The controlled journey (Raidho), the initiatory "underworld" journey (Eihwaz), and the unconscious flow (Laguz). |
+| $\\S$ **Lí (Fire)** | The Clinging, Clarity, Vision | **6\.** $\\ᚲ$ (Kenaz), $\\ᛈ$ (Perthro), $\\ᛜ$ (Ingwaz) | **The Inner Light / Potential:** The torch of skill (Kenaz), the hidden mystery of fate (Perthro), and the gestating inner seed (Ingwaz). |
+| $\\S$ **Xùn (Wind)** | The Gentle, Penetration, Spirit | **7\.** $\\ᚷ$ (Gebo), $\\ᛉ$ (Algiz), $\\ᛞ$ (Dagaz) | **The Connection / Exchange:** Human exchange (Gebo), divine protection (Algiz), and cosmic breakthrough (Dagaz). |
+| $\\S$ **Duí (Lake)** | The Joyous, Social, Open | **8\.** $\\ᚹ$ (Wunjo), $\\ᛊ$ (Sowilo), $\\ᛟ$ (Othala) | **The Culmination / Harmony:** Communal joy (Wunjo), individual victory (Sowilo), and ancestral heritage (Othala). |
+
+---
+
+### **\#\# The 4-Step Interpretive Framework**
+
+When you generate a hexagram, the two runes provide the specific nuance. The interpretation is a 4-step synthesis:
+
+1. **Establish the Landscape (The Hexagram):** Read the classic I Ching text for the hexagram generated (e.g., Hex 64, *Before Completion*). This is the objective situation—the "what."  
+2. **Define the Inner Dimension (Rune 1 $\\to$ Lower Trigram):** Look at the *first* rune drawn. This rune defines the *internal foundation* or "why" of the situation. It adds psychological depth to the Lower Trigram.  
+   * *Example:* For Hex 64, the Lower Trigram is Kǎn (Water). If you drew **Eihwaz** ($\\ᛇ$), the "abyss" is not just danger; it's an *initiatory, shamanic journey*.  
+3. **Define the External Strategy (Rune 2 $\\to$ Upper Trigram):** Look at the *second* rune drawn. This defines the *external expression* or "how-to" of the situation. It adds a specific strategy to the Upper Trigram.  
+   * *Example:* For Hex 64, the Upper Trigram is Lí (Fire). If you drew **Kenaz** ($\\ᚲ$), the "clarity" required is not passive; it's the *active, applied skill* of the "torch in the dark."  
+4. **Create the Full Narrative:** Weave these three threads into a single, actionable reading.  
+   * *Example:* "You are in the chaotic state of 'Before Completion' (Hex 64). The root of this is a profound, initiatory trial (Eihwaz), and your path through it is to apply your conscious skill and knowledge like a torch to illuminate the chaos (Kenaz)."
+
+---
+
+### **\#\# Foundational Theory: The Futhark's Structure**
+
+The entire system rests on a modern, structural interpretation of the Elder Futhark.
+
+#### **\#\#\# The Meaning of the Three Aetts ($\\text{Ættir}$)**
+
+The 24 runes are divided into three "families" of eight, representing a three-act structure of existence:3
+
+* **Aett 1: Freyr's Aett (The Aett of Manifestation)**  
+  * **Runes:** Fehu $\\to$ Wunjo  
+  * **Theme:** Deals with the physical, material world and the human condition: sustenance (Fehu), struggle (Thurisaz), order (Raidho), skill (Kenaz), exchange (Gebo), and community joy (Wunjo).  
+* **Aett 2: Heimdall's Aett (The Aett of Ordeal)**  
+  * **Runes:** Hagalaz $\\to$ Sowilo  
+  * **Theme:** Represents the external, fated forces of nature and crisis: sudden disruption (Hagalaz), necessity (Nauthiz), stasis (Isa), natural cycles (Jera), initiation (Eihwaz), and finally, victory (Sowilo).  
+* **Aett 3: Tyr's Aett (The Aett of Spirit)**  
+  * **Runes:** Tiwaz $\\to$ Othala  
+  * **Theme:** Transcends the first two into the realm of divine law, spirit, and legacy: divine justice (Tiwaz), renewal (Berkano), partnership (Ehwaz), human consciousness (Mannaz), enlightenment (Dagaz), and heritage (Othala).
+
+#### **\#\#\# The Relationship Between Positional Runes (Aett Stacks)**
+
+This is the key theory we used for the Triad mapping. It posits that the *position* (1-8) of a rune within its Aett has a consistent archetypal meaning. Each stack is a "triad" of the same core idea, expressed on the material, fated, and spiritual planes.
+
+1. **The Principle (Pos. 1):** $\\\[ \\text{Fehu, Hagalaz, Tiwaz} \]$  
+   * The active, generative, or catalytic force of the realm (Matter, Nature, Spirit).  
+2. **The Substance (Pos. 2):** $\\\[ \\text{Uruz, Nauthiz, Berkano} \]$  
+   * The passive, formative, or material principle (Formless potential, Constrained matter, The Womb).  
+3. **The Threshold (Pos. 3):** $\\\[ \\text{Thurisaz, Isa, Ehwaz} \]$  
+   * The point of transition, stasis, or passage (The Gate, Total Stillness, The Vehicle).  
+4. **The Order (Pos. 4):** $\\\[ \\text{Ansuz, Jera, Mannaz} \]$  
+   * The governing law or consciousness (Divine Order, Natural Order, Social Order).  
+5. **The Journey (Pos. 5):** $\\\[ \\text{Raidho, Eihwaz, Laguz} \]$  
+   * The nature of process and movement (Worldly Process, Underworld Axis, Unconscious Flow).  
+6. **The Inner Light (Pos. 6):** $\\\[ \\text{Kenaz, Perthro, Ingwaz} \]$  
+   * The contained, hidden, or internal potential (Torch of Skill, Hidden Fate, Gestating Seed).  
+7. **The Connection (Pos. 7):** $\\\[ \\text{Gebo, Algiz, Dagaz} \]$  
+   * The point of exchange between self and other (Human Gift, Divine Protection, Cosmic Breakthrough).  
+8. **The Culmination (Pos. 8):** $\\\[ \\text{Wunjo, Sowilo, Othala} \]$  
+   * The final state of being or result (Communal Harmony, Individual Victory, Ancestral Legacy).
+
+---
+
+### **\#\# The System's Full Scope**
+
+We concluded by quantifying the full interpretive power of this system:
+
+* **64 Outputs (Hexagrams):** The system can generate all 64 possible I Ching answers.  
+* **576 Inputs (Nuanced Combinations):** The total number of unique readings. This is derived from the number of rune choices for each trigram:  
+  * Choices for Lower Trigram: 3 (from the Triad)  
+  * Choices for Upper Trigram: 3 (from the Triad)  
+  * This means each of the 64 hexagrams has $\\mathbf{9}$ **unique "flavored" combinations** ($3 \\times 3 \= 9$).
+
+To support this, I provided detailed, two-paragraph oracle interpretations for all 24 runes, specifically designed to be used as these "interpretive lenses."
