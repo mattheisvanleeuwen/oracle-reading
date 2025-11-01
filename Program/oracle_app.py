@@ -178,11 +178,11 @@ st.markdown("""
 # ============================================================================
 
 # Get API key from Streamlit secrets (secure for deployment)
-# Falls back to environment variable or hardcoded for local development
+# Falls back to environment variable for local development
 try:
     api_key_to_use = st.secrets["GOOGLE_API_KEY"]
 except:
-    api_key_to_use = os.getenv('GOOGLE_API_KEY', "AIzaSyDlnxu63hGJkagTzkwjWayr67TzaYln0ww")
+    api_key_to_use = os.getenv('GOOGLE_API_KEY', None)
 
 use_ai = True
 
