@@ -103,12 +103,23 @@ st.markdown("""
         color: #e5e5e5;
     }
     
-    /* Expander customization */
+    /* Expander customization - smaller size */
     .streamlit-expanderHeader {
         background-color: rgba(45, 53, 97, 0.6) !important;
         border-radius: 8px;
         font-weight: bold;
-        font-size: 1.1rem;
+        font-size: 0.9rem !important;
+        padding: 0.5rem 1rem !important;
+    }
+    
+    /* Make expander content wider for better readability */
+    .streamlit-expanderContent {
+        max-width: 100% !important;
+    }
+    
+    /* Ensure expander content uses full available width */
+    div[data-testid="stExpander"] > div {
+        width: 100% !important;
     }
     
     /* Input styling */
@@ -256,10 +267,23 @@ st.markdown(f"""
 # INPUT SECTION
 # ============================================================================
 
-# Create columns for better layout
-col1, col2, col3 = st.columns([1, 2, 1])
+# Create columns for better layout - wider center column for content
+col1, col2, col3 = st.columns([0.5, 3, 0.5])
 
 with col2:
+    # Instructions buttons side by side (smaller, at top)
+    col_instr1, col_instr2 = st.columns([1, 1])
+    
+    with col_instr1:
+        with st.expander(get_text(lang, 'instructions_button'), expanded=False):
+            st.markdown(get_text(lang, 'instructions_content'), unsafe_allow_html=True)
+    
+    with col_instr2:
+        with st.expander(get_text(lang, 'why_it_works_button'), expanded=False):
+            st.markdown(get_text(lang, 'why_it_works_content'), unsafe_allow_html=True)
+    
+    st.markdown("<br>", unsafe_allow_html=True)
+    
     # User name input
     st.markdown(f"<h3 style='color: #ffd700; text-align: center;'>{get_text(lang, 'enter_name_header')}</h3>", unsafe_allow_html=True)
     user_name = st.text_input("", placeholder=get_text(lang, 'name_placeholder'), label_visibility="collapsed", key="user_name")
